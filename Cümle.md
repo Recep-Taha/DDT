@@ -1,1 +1,1 @@
-şuan yazdığımı görebiliyomusun abi
+abi birazdan yazacağım cümleleri
