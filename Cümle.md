@@ -1,1 +1,1 @@
-
+şuan yazdığımı görebiliyomusun abi
