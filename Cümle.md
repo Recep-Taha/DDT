@@ -10,4 +10,14 @@ Jane: Hi Recep. I would like to meet too (Burada birazcık çeviriden yardım al
 Recep Taha: He is smart, is integellent, hardworking, most importantly it helps when i have a problem :)
 Eyüp Şükrü: Glad too meet you
 Jane: Nice too meet you
+###################################
+My classes at half past eight 
+My  English class is at 10.00: Cümlenin okunuşu: My English class is at ten o'clock
+I arrive at home at quarter past five
+I have  dinner at eight o'clock (p.m)
+I go to bed at half past two p.m  (müq bişi :)  )
+I love English language 
+I'm learning right now is English
+I  want tou learn Englis other languages besides (birazcık çeviriden baktım "besides" bu kelimeyi baktım
+
            
