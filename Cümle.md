@@ -19,5 +19,13 @@ I go to bed at half past two p.m  (müq bişi :)  )
 I love English language 
 I'm learning right now is English
 I  want tou learn Englis other languages besides (birazcık çeviriden baktım "besides" bu kelimeyi baktım
+##################################
+11.01.20023
 
-           
+My exams is at start  08.00 a.m
+The project deadline is in April
+The exams is twenty December starts
+My bithday is on March twenty-eight.And you?
+Eyüp Şükrü's cyber security program starts at 14.20
+ATP 9-Z's is teh final football match at 12.40 
+I want to be a software developer
