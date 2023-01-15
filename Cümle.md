@@ -29,3 +29,27 @@ My bithday is on March twenty-eight.And you?
 Eyüp Şükrü's cyber security program starts at 14.20
 ATP 9-Z's is teh final football match at 12.40 
 I want to be a software developer
+#############################1
+14.01.2023
+I am about to finish A1 level English
+I have to know english
+15.01.2023
+I've been lagging English a lot lately
+I want to buy a laptop because i really need it
+Now i just focus on my career
+I need to study more english
+Abi nerdesin öldün mü kaldın mı telegrama bakmıyosun belki buraya bakarsın diye yazıyorum
+
+
+
+
+
+
+
+
+
+
+
+
+
+
