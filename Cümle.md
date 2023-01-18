@@ -38,6 +38,9 @@ I've been lagging English a lot lately
 I want to buy a laptop because i really need it
 Now i just focus on my career
 I need to study more english
+18.01.2023
+Ben bi gevşedim toparlancam 
+I am working on a english now
 
 
 
