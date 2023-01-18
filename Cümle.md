@@ -38,7 +38,7 @@ I've been lagging English a lot lately
 I want to buy a laptop because i really need it
 Now i just focus on my career
 I need to study more english
-Abi nerdesin öldün mü kaldın mı telegrama bakmıyosun belki buraya bakarsın diye yazıyorum
+
 
 
 
