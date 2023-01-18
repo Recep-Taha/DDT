@@ -15,7 +15,7 @@ My classes at half past eight
 My  English class is at 10.00: Cümlenin okunuşu: My English class is at ten o'clock
 I arrive at home at quarter past five
 I have  dinner at eight o'clock (p.m)
-I go to bed at half past two p.m  (müq bişi :)  )
+I go to bed at half past two p.m  
 I love English language 
 I'm learning right now is English
 I  want tou learn Englis other languages besides (birazcık çeviriden baktım "besides" bu kelimeyi baktım
