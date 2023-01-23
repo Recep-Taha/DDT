@@ -41,6 +41,11 @@ I need to study more english
 18.01.2023
 Ben bi gevşedim toparlancam 
 I am working on a english now
+23.01.2023
+Eyup brother where are you
+Why don't you check telegram
+I'm finishing a1 today.I am determined
+I hope you check telegram today
 
 
 
