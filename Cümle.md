@@ -46,7 +46,7 @@ Eyup brother where are you
 Why don't you check telegram
 I'm finishing a1 today.I am determined
 I hope you check telegram today
-
+Brother Eyup is missing
 
 
 
